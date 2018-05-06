@@ -1,0 +1,2 @@
+# o3o
+https://discordapp.com/api/webhooks/442703959401037835/l24iRGRMIyyI9awzyKnAY32B5CovfkYIwhYZ_fKdz6u1MGr6IzF4vLWmmJyxh3Fb0zAe
